@@ -1,0 +1,1 @@
+# MecaMind-Automa-o-Intelig-ncia-Industrial1
